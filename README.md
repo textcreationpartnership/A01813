@@ -35,12 +35,14 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A briefe treatise touching the preservation of the eie sight consisting partly in good order of diet
+Occaſioned thorough certain ſpeeches had with ſome of mine Honourable good friendes, to write mine o
 #####Body#####
 
-1. To preſerue the ſight by medicines.
+1. A breefe Treatiſe concerning the preſervation of the eie ſight.
 
-1. Inward Medicines.
+    _ To preſerue the ſight by medicines.
+
+    _ Inward Medicines.
 
 **Types of content**
 
